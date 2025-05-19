@@ -1,1 +1,0 @@
-# mbti-bible-personal
